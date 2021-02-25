@@ -1,3 +1,5 @@
+**LEGAL DISCLAIMER:** All information in this document is provided "as is", with no guarantee of completeness, accuracy, timeliness or of the results obtained from the use of this information, and without warranty of any kind, express or implied, including, but not limited to warranties of performance, merchantability and fitness for a particular purpose. When in doubt, seek legal advise. **USE AT YOUR OWN RISK**
+
 # How to file a USPTO trademark without an attorney for $225
 
 ## STEP 1
